@@ -18,3 +18,5 @@ Is that clear?
 Also you can use QR-code ![](https://uhjilehep.neocities.org/gitHub_user_founder/photo_2023-11-05_01-23-50.jpg)
 
 PS... it`s still in process :з
+
+Вторая версия хехе
